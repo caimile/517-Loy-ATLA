@@ -51,3 +51,9 @@ Air is the element of freedom. The Air Nomads detached themselves from worldly c
 
 ### Air Sub-Elements
 * Flight
+
+# Avatars Before Aang
+1. Yangchen: Air
+2. Kuruk: Water
+3. Kyoshi: Earth
+4. Roku: Fire
