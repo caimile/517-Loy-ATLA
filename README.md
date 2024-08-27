@@ -2,7 +2,8 @@
 _Avatar: The Last Airbender_
 > "Water. Earth. Fire. Air. Only the Avatar can master all four elements and bring balance to the world."
 
-See: ["The Politics of Life and Death in _Avatar: The Last Airbender_"](https://ethnicstudies.ucsd.edu/_files/Student%20Projects/Life%20and%20Death%20in%20Avatar.pdf) by Rami Ibrahim.
+See: ["The Politics of Life and Death in _Avatar: The Last Airbender_"](https://ethnicstudies.ucsd.edu/_files/Student%20Projects/Life%20and%20Death%20in%20Avatar.pdf) by Rami Ibrahim
+and ["The 20 Best _Avatar: The Last Airbender_ Quotes](https://www.pastemagazine.com/tv/avatar-the-last-airbender/avatar-the-last-airbender-quotes).
 
 # Team Avatar
 
